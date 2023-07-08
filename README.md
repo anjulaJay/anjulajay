@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi there... I'm Anjula, <br><br>⦾ 🎓 currently studying at SLTC research university<br>⦾ 💻 following the software engineering degree program<br>⦾ 🎯 trying to follow new technologies always<br>⦾ 📧 reach me anjulajayasinghe100@gmail.com<br><br>🎤 singing | 🎸 playing |🎨 drawing | 🏕️ camping | 🎮 gaming<br> 
+Hi there... I'm Anjula, <br><br>⦾ 🎓 currently studying at SLTC research university<br>⦾ 💻 following the software engineering degree program<br>⦾ 🎯 trying to follow new technologies always<br>⦾ 📌 IEEE Computer Society SBC Vice-Chairman of SLTC<br>⦾ 📧 reach me anjulajayasinghe100@gmail.com<br><br>🎤 singing | 🎸 playing |🎨 drawing | 🏕️ camping | 🎮 gaming<br> 
 
 
 ## 🌐 Socials:
